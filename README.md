@@ -1,0 +1,1 @@
+Perkenalkan saya Sendi Julpani, saya mengikuti Revo U untuk mendapatkan ilmu dan juga sertifikat, ini adalah tugas yang diberikan oleh pihak Revo U dan saya telah menyelesaikannya
